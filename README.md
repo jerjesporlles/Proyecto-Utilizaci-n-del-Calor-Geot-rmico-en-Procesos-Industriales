@@ -1,1 +1,1 @@
-# Proyecto-Utilizaci-n-del-Calor-Geot-rmico-en-Procesos-Industriales
+# Proyecto Utilización del Calor Geotérmico en Procesos Industriales
